@@ -1,0 +1,2 @@
+# Jisuan_kexue_daolun
+孙运雷老师要求计算科学导论上传的资料
